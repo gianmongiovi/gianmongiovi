@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @gianmongiovi
+- 👀 I’m interested in Sustainable Finance
+- 🌱 I’m currently learning how to integrate ESG factors in investment decisions
+- 💞️ I’m looking to collaborate on ...
